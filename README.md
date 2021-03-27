@@ -5,4 +5,4 @@
 My YouTube Channel
 
 
-[CYBER WORLD](https://cyberworld.tk)
+[CYBER WORLD](https://ajmalaju57.github.io/YouTubeChannel/.)
